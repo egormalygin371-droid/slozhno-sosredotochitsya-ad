@@ -1,1 +1,1 @@
-https://github.com/egormalygin371-droid/slozhno-sosredotochitsya-ad
+https://egormalygin371-droid.github.io/slozhno-sosredotochitsya-ad/
